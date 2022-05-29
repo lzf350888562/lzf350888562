@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+每天坚持学习1小时
+
+语雀笔记:https://www.yuque.com/lzfbads3505621
+
 <!--
 **lzf350888562/lzf350888562** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
