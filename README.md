@@ -1,4 +1,4 @@
-### an hour a day
+### An hour a day
 
 
 📓:[语雀笔记](https://www.yuque.com/lzfbads3505621)
