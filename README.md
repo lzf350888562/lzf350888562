@@ -1,4 +1,4 @@
-### 每天坚持学习1小时
+### an hour a day
 
 
 📓:[语雀笔记](https://www.yuque.com/lzfbads3505621)
